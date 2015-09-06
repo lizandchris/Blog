@@ -1,101 +1,98 @@
-[\#](# "#")[\#](# "#") - [Facebook](http://facebook.com/humanworkplace "http://facebook.com/humanworkplace") - [Twitter](https://twitter.com/humanworkplace "https://twitter.com/humanworkplace") - [Linkedin](http://www.linkedin.com/company/human-workplace "http://www.linkedin.com/company/human-workplace") - [Gplus](https://plus.google.com/117486689927290860362 "https://plus.google.com/117486689927290860362")
+-   [<span>Facebook</span>](http://facebook.com/humanworkplace)
 
--   
+-   [<span>Twitter</span>](https://twitter.com/humanworkplace)
 
-[Member Login](http://www.humanworkplace.com/membership-login/ "http://www.humanworkplace.com/membership-login/") -
+-   [<span>Linkedin</span>](http://www.linkedin.com/company/human-workplace)
 
-[Members Area](http://www.humanworkplace.com/members-only/ "http://www.humanworkplace.com/members-only/") -
+-   [<span>Gplus</span>](https://plus.google.com/117486689927290860362)
 
-[Become a Member](/membership-comparison-2/ "/membership-comparison-2/") -
+<!-- -->
 
-[Friend](/index.php?/register/ANTZ45 "/index.php?/register/ANTZ45") -
+-   [Member Login](http://www.humanworkplace.com/membership-login/)
 
-[Individual](/products/individual-membership "/products/individual-membership")
+-   [Members Area](http://www.humanworkplace.com/members-only/)
 
-**[\<\<http://www.humanworkplace.com/wp-content/uploads/2013/04/New-Logo-300x114.jpg Human Workplace](http://www.humanworkplace.com/ "http://www.humanworkplace.com/")\>\>** -
+-   [Become a Member](/membership-comparison-2/)
 
-[Home](http://www.humanworkplace.com/ "http://www.humanworkplace.com/") -
+    -   [Friend](/index.php?/register/ANTZ45)
 
-[About Us](/what-is-the-human-workplace "/what-is-the-human-workplace") -
+    -   [Individual](/products/individual-membership)
 
-[Our Team](/whos-we "/whos-we") -
+**[![image](http://www.humanworkplace.com/wp-content/uploads/2013/04/New-Logo-300x114.jpg)](http://www.humanworkplace.com/)**
 
-[Human Workplace Live & Virtual Presentations](http://www.humanworkplace.com/human-workplace-live-virtual-presentations/ "http://www.humanworkplace.com/human-workplace-live-virtual-presentations/") -
+-   [<span>Home</span>](http://www.humanworkplace.com/)
 
-[Terms & Conditions](http://www.humanworkplace.com/terms-conditions/ "http://www.humanworkplace.com/terms-conditions/")
+-   [<span>About Us</span>](/what-is-the-human-workplace)
 
--   
+    -   [<span>Our Team</span>](/whos-we)
 
-[Blog!](http://www.humanworkplace.com/blog-2/reinventing-work-for-people/ "http://www.humanworkplace.com/blog-2/reinventing-work-for-people/") -
+    -   [<span>Human Workplace Live & Virtual Presentations</span>](http://www.humanworkplace.com/human-workplace-live-virtual-presentations/)
 
-[Partners](http://www.humanworkplace.com/partners/ "http://www.humanworkplace.com/partners/") -
+    -   [<span>Terms & Conditions</span>](http://www.humanworkplace.com/terms-conditions/)
 
-[Shop](# "#") -
+-   [<span>Blog!</span>](http://www.humanworkplace.com/blog-2/reinventing-work-for-people/)
 
-[Burning Issue Q & A Service](http://www.humanworkplace.com/product-cat/burning-issue/ "http://www.humanworkplace.com/product-cat/burning-issue/") -
+-   [<span>Partners</span>](http://www.humanworkplace.com/partners/)
 
-[Congratulations Class of 2015! Special Packages](http://www.humanworkplace.com/product-cat/congratulations-class-of-2015-special-packages/ "http://www.humanworkplace.com/product-cat/congratulations-class-of-2015-special-packages/") -
+-   -   [<span>Burning Issue Q & A Service</span>](http://www.humanworkplace.com/product-cat/burning-issue/)
 
-[Downloadable Catalogs](http://www.humanworkplace.com/product-cat/downloadable-catalogs/ "http://www.humanworkplace.com/product-cat/downloadable-catalogs/") -
+    -   [<span>Congratulations Class of 2015! Special Packages</span>](http://www.humanworkplace.com/product-cat/congratulations-class-of-2015-special-packages/)
 
-[Downloadable eBooks](http://www.humanworkplace.com/product-cat/ebooks/ "http://www.humanworkplace.com/product-cat/ebooks/") -
+    -   [<span>Downloadable Catalogs</span>](http://www.humanworkplace.com/product-cat/downloadable-catalogs/)
 
-[Four-Week Virtual Courses](http://www.humanworkplace.com/product-cat/four-week-virtual-courses/ "http://www.humanworkplace.com/product-cat/four-week-virtual-courses/") -
+    -   [<span>Downloadable eBooks</span>](http://www.humanworkplace.com/product-cat/ebooks/)
 
-[HW for Employers](http://www.humanworkplace.com/product-cat/hw-for-employers/ "http://www.humanworkplace.com/product-cat/hw-for-employers/") -
+    -   [<span>Four-Week Virtual Courses</span>](http://www.humanworkplace.com/product-cat/four-week-virtual-courses/)
 
-[Human Workplace Toolkits](# "#") -
+    -   [<span>HW for Employers</span>](http://www.humanworkplace.com/product-cat/hw-for-employers/)
 
-[NEW! HW Toolkit: When the Headhunter Calls](http://www.humanworkplace.com/product-cat/human-workplace-toolkit-when-the-headhunter-calls/ "http://www.humanworkplace.com/product-cat/human-workplace-toolkit-when-the-headhunter-calls/") -
+    -   -   [<span>NEW! HW Toolkit: When the Headhunter Calls</span>](http://www.humanworkplace.com/product-cat/human-workplace-toolkit-when-the-headhunter-calls/)
 
-[Human Workplace MEGA Toolkit: When the Headhunter Calls COMPLETE TOOLKIT WITH EXTRAS](http://www.humanworkplace.com/products/human-workplace-toolkit-headhunter-calls-complete-toolkit/ "http://www.humanworkplace.com/products/human-workplace-toolkit-headhunter-calls-complete-toolkit/") -
+            -   [<span>Human Workplace MEGA Toolkit: When the Headhunter Calls COMPLETE TOOLKIT WITH EXTRAS</span>](http://www.humanworkplace.com/products/human-workplace-toolkit-headhunter-calls-complete-toolkit/)
 
-[Human Workplace Toolkit: When the Headhunter Calls SCRIPT](http://www.humanworkplace.com/products/human-workplace-toolkit-headhunter-calls-script/ "http://www.humanworkplace.com/products/human-workplace-toolkit-headhunter-calls-script/") -
+            -   [<span>Human Workplace Toolkit: When the Headhunter Calls SCRIPT</span>](http://www.humanworkplace.com/products/human-workplace-toolkit-headhunter-calls-script/)
 
-[Human Workplace Toolkit: When the Headhunter Calls SAMPLE COMMUNICATIONS](http://www.humanworkplace.com/products/human-workplace-toolkit-headhunter-calls-sample-communications/ "http://www.humanworkplace.com/products/human-workplace-toolkit-headhunter-calls-sample-communications/") -
+            -   [<span>Human Workplace Toolkit: When the Headhunter Calls SAMPLE COMMUNICATIONS</span>](http://www.humanworkplace.com/products/human-workplace-toolkit-headhunter-calls-sample-communications/)
 
-[Human Workplace Toolkit: When the Headhunter Calls ROADMAP](http://www.humanworkplace.com/products/human-workplace-toolkit-headhunter-calls-roadmap/ "http://www.humanworkplace.com/products/human-workplace-toolkit-headhunter-calls-roadmap/") -
+            -   [<span>Human Workplace Toolkit: When the Headhunter Calls ROADMAP</span>](http://www.humanworkplace.com/products/human-workplace-toolkit-headhunter-calls-roadmap/)
 
-[Human Workplace Toolkit: When the Headhunter Calls ACTION PLANNER](http://www.humanworkplace.com/products/human-workplace-toolkit-headhunter-calls-action-planner/ "http://www.humanworkplace.com/products/human-workplace-toolkit-headhunter-calls-action-planner/") -
+            -   [<span>Human Workplace Toolkit: When the Headhunter Calls ACTION PLANNER</span>](http://www.humanworkplace.com/products/human-workplace-toolkit-headhunter-calls-action-planner/)
 
-[Human Workplace Toolkit: When the Headhunter Calls IF X, THEN Y CHART](http://www.humanworkplace.com/products/human-workplace-toolkit-headhunter-calls-x-y-chart/ "http://www.humanworkplace.com/products/human-workplace-toolkit-headhunter-calls-x-y-chart/") -
+            -   [<span>Human Workplace Toolkit: When the Headhunter Calls IF X, THEN Y CHART</span>](http://www.humanworkplace.com/products/human-workplace-toolkit-headhunter-calls-x-y-chart/)
 
-[Human Workplace Toolkit: When the Headhunter Calls PROCESS FLOW](http://www.humanworkplace.com/products/human-workplace-toolkit-headhunter-calls-process-flow/ "http://www.humanworkplace.com/products/human-workplace-toolkit-headhunter-calls-process-flow/") -
+            -   [<span>Human Workplace Toolkit: When the Headhunter Calls PROCESS FLOW</span>](http://www.humanworkplace.com/products/human-workplace-toolkit-headhunter-calls-process-flow/)
 
-[Human Workplace Tool: When the Headhunter Calls WORKSHEET](http://www.humanworkplace.com/products/human-workplace-tool-headhunter-calls-worksheet/ "http://www.humanworkplace.com/products/human-workplace-tool-headhunter-calls-worksheet/") -
+            -   [<span>Human Workplace Tool: When the Headhunter Calls WORKSHEET</span>](http://www.humanworkplace.com/products/human-workplace-tool-headhunter-calls-worksheet/)
 
-[Human Workplace Tool: When the Headhunter Calls CHECKLIST](http://www.humanworkplace.com/products/human-workplace-tool-headhunter-calls-checklist/ "http://www.humanworkplace.com/products/human-workplace-tool-headhunter-calls-checklist/") -
+            -   [<span>Human Workplace Tool: When the Headhunter Calls CHECKLIST</span>](http://www.humanworkplace.com/products/human-workplace-tool-headhunter-calls-checklist/)
 
-[Human Workplace Tool: When the Headhunter Calls 25 TIPS](http://www.humanworkplace.com/products/human-workplace-tool-25-tips-headhunter-calls/ "http://www.humanworkplace.com/products/human-workplace-tool-25-tips-headhunter-calls/") -
+            -   [<span>Human Workplace Tool: When the Headhunter Calls 25 TIPS</span>](http://www.humanworkplace.com/products/human-workplace-tool-25-tips-headhunter-calls/)
 
-[Human Workplace Tool: When the Headhunter Calls Q & A](http://www.humanworkplace.com/products/hw-tool-headhunter-calls-q/ "http://www.humanworkplace.com/products/hw-tool-headhunter-calls-q/") -
+            -   [<span>Human Workplace Tool: When the Headhunter Calls Q & A</span>](http://www.humanworkplace.com/products/hw-tool-headhunter-calls-q/)
 
-[Human Workplace Tool: When the Headhunter Calls CHEAT SHEET](http://www.humanworkplace.com/products/hw-tool-headhunter-calls-cheet-sheet/ "http://www.humanworkplace.com/products/hw-tool-headhunter-calls-cheet-sheet/")
+            -   [<span>Human Workplace Tool: When the Headhunter Calls CHEAT SHEET</span>](http://www.humanworkplace.com/products/hw-tool-headhunter-calls-cheet-sheet/)
 
--   
+    -   [<span>Individual Membership</span>](http://www.humanworkplace.com/products/individual-membership/)
 
-    [Individual Membership](http://www.humanworkplace.com/products/individual-membership/ "http://www.humanworkplace.com/products/individual-membership/") -
+    -   [<span>Premium Career Guidance</span>](http://www.humanworkplace.com/product-cat/premium-career-guidance/)
 
-    [Premium Career Guidance](http://www.humanworkplace.com/product-cat/premium-career-guidance/ "http://www.humanworkplace.com/product-cat/premium-career-guidance/") -
+    -   [<span>12-Week Virtual Courses</span>](http://www.humanworkplace.com/product-cat/online-courses/)
 
-    [12-Week Virtual Courses](http://www.humanworkplace.com/product-cat/online-courses/ "http://www.humanworkplace.com/product-cat/online-courses/") -
+    -   [<span>Mid-Summer MOJO Sale</span>](http://www.humanworkplace.com/product-cat/mid-summer-mojo-sale/)
 
-    [Mid-Summer MOJO Sale](http://www.humanworkplace.com/product-cat/mid-summer-mojo-sale/ "http://www.humanworkplace.com/product-cat/mid-summer-mojo-sale/")
+-   [<span>Contact</span>](http://www.humanworkplace.com/contact-human-workplace/)
 
--   
+-   [<span>Search</span>](?s=)
 
-[Contact](http://www.humanworkplace.com/contact-human-workplace/ "http://www.humanworkplace.com/contact-human-workplace/") -
+**[Blog](http://www.humanworkplace.com/blog-2/)**
 
-[Search](?s= "?s=")
+<span><span>You are here:</span></span> [Home](http://www.humanworkplace.com) <span>/</span> <span>[Blog](http://www.humanworkplace.com/blog-2/)</span> <span>/</span> <span>[career advice](http://www.humanworkplace.com/category/career-advice/)</span> <span>/</span> <span>[Human workplace](http://www.humanworkplace.com/category/career-advice/human-workplace/)</span> <span>/</span> <span>How to Write a Job Ad</span>
 
-**[Blog](http://www.humanworkplace.com/blog-2/ "http://www.humanworkplace.com/blog-2/")** You are here: [Home](http://www.humanworkplace.com "http://www.humanworkplace.com") / [Blog](http://www.humanworkplace.com/blog-2/ "http://www.humanworkplace.com/blog-2/") / [career advice](http://www.humanworkplace.com/category/career-advice/ "http://www.humanworkplace.com/category/career-advice/") / [Human workplace](http://www.humanworkplace.com/category/career-advice/human-workplace/ "http://www.humanworkplace.com/category/career-advice/human-workplace/") / How to Write a Job Ad
+[![image](http://www.humanworkplace.com/wp-content/uploads/2014/05/Grow-your-flame-with-us-Liz-Ryan-Live-images-710x270.jpg)](http://www.humanworkplace.com/wp-content/uploads/2014/05/Grow-your-flame-with-us-Liz-Ryan-Live-images-716x1030.jpg)
 
-[\<\<http://www.humanworkplace.com/wp-content/uploads/2014/05/Grow-your-flame-with-us-Liz-Ryan-Live-images-710x270.jpg Downloadable E-Book: Pegging, Broaching and Negotiating Salary](http://www.humanworkplace.com/wp-content/uploads/2014/05/Grow-your-flame-with-us-Liz-Ryan-Live-images-716x1030.jpg "http://www.humanworkplace.com/wp-content/uploads/2014/05/Grow-your-flame-with-us-Liz-Ryan-Live-images-716x1030.jpg")\>\>
+<span>September 19, 2014<span>/</span><span>[9 Comments](http://www.humanworkplace.com/write-job-ad/#comments)</span><span>/</span><span>in [Human workplace](http://www.humanworkplace.com/category/career-advice/human-workplace/) </span><span>/</span><span>by <span><span><span>[Liz Ryan](http://www.humanworkplace.com/author/liz-2/)</span></span></span></span></span>
 
-[How to Write a Job Ad](http://www.humanworkplace.com/write-job-ad/ "http://www.humanworkplace.com/write-job-ad/")
-==================================================================================================================
-
-September 19, 2014/[9 Comments](http://www.humanworkplace.com/write-job-ad/#comments "http://www.humanworkplace.com/write-job-ad/#comments")/in [Human workplace](http://www.humanworkplace.com/category/career-advice/human-workplace/ "http://www.humanworkplace.com/category/career-advice/human-workplace/") /by [Liz Ryan](http://www.humanworkplace.com/author/liz-2/ "http://www.humanworkplace.com/author/liz-2/") You can write a job ad that doesn’t sound like a robot or a zombie wrote it. You can put a human voice in your job ads, and you’ll get a much better response when you do! Start by telling us about the organization. Don’t use boring business boilerplate language like “We are a leading software firm.” That isn’t going to make anyone’s heart beat faster. Tell us the story of your organization, and why anyone would want to work there.
+You can write a job ad that doesn’t sound like a robot or a zombie wrote it. You can put a human voice in your job ads, and you’ll get a much better response when you do! Start by telling us about the organization. Don’t use boring business boilerplate language like “We are a leading software firm.” That isn’t going to make anyone’s heart beat faster. Tell us the story of your organization, and why anyone would want to work there.
 
 Next, tell us about the role that’s available. Why is the job open? Where did the job come from – how did the need emerge? We want to know the details. That makes the job more interesting to candidates. We need to know **why** to apply more than **how** to apply! You are competing with every other employer in your area. You have to entice candidates, or they’ll skip your job ad and go to the next one.
 
@@ -105,200 +102,187 @@ That’s because Allan included a Logical Gate in the job ad. We teach managers 
 
 **OPERATIONS MANAGER: YOUR EXPERTISE IS NEEDED! **
 
-/Our company, Acme Explosives, was founded in 1943 by our CEO’s grandfather. We’re a $50M company now and the largest stick-dynamite maker in the USA. We’re growing, and we’ve created an Operations Manager position reporting to me, the Director of Operations, Allan Smith./
+*Our company, Acme Explosives, was founded in 1943 by our CEO’s grandfather. We’re a $50M company now and the largest stick-dynamite maker in the USA. We’re growing, and we’ve created an Operations Manager position reporting to me, the Director of Operations, Allan Smith.*
 
-/I look after Operations, Purchasing, Production and Inventory Control, and in this role you’ll work closely with the managers of all those departments along with the whole crew at Acme.* *You’ll be responsible for our facilities (a 30,000 sf office and 200,000 sf manufacturing/warehouse facility on the same campus) and for Safety and Security for our organization./
+*I look after Operations, Purchasing, Production and Inventory Control, and in this role you’ll work closely with the managers of all those departments along with the whole crew at Acme.* *You’ll be responsible for our facilities (a 30,000 sf office and 200,000 sf manufacturing/warehouse facility on the same campus) and for Safety and Security for our organization.*
 
-/You’ll work closely with our HR team on employee safety and security issues and make sure that our facility is safe, comfortable, energy-efficient and operationally in shape to power our growth.* *The challenge in this job will be keeping our Operations functions up to speed with of our growth and keeping up with the constant changes in this growing business. The reward will be the ability to run your own Operations shop, working with sharp, ethical and dedicated people who believe in our company, our opportunity and one another./
+*You’ll work closely with our HR team on employee safety and security issues and make sure that our facility is safe, comfortable, energy-efficient and operationally in shape to power our growth.* *The challenge in this job will be keeping our Operations functions up to speed with of our growth and keeping up with the constant changes in this growing business. The reward will be the ability to run your own Operations shop, working with sharp, ethical and dedicated people who believe in our company, our opportunity and one another.*
 
-*The compensation range for this role is $85-$90K.* /If you’re interested in learning more, please write to me at allansmith@acmeexplosives.com with a 300-word reply. In your letter, let me know why this job is a great fit for you, not only in terms of your qualifications  but also by answering the question “How will this opportunity advance your career?” Lastly, in your letter tell me what you’d view as the major areas of priority for you in this job and where you’d expect to find issues that we need to jump on immediately. Thanks for reading, and enjoy your day!/ What did you notice about Allan’s job ad?
+*The compensation range for this role is $85-$90K.* *If you’re interested in learning more, please write to me at allansmith@acmeexplosives.com with a 300-word reply. In your letter, let me know why this job is a great fit for you, not only in terms of your qualifications  but also by answering the question “How will this opportunity advance your career?” Lastly, in your letter tell me what you’d view as the major areas of priority for you in this job and where you’d expect to find issues that we need to jump on immediately. Thanks for reading, and enjoy your day!* What did you notice about Allan’s job ad?
 
 -   There aren’t any Requirements or Essential Qualifications. How would Allan know the exact background that his perfect candidate will have? He doesn’t know. His new hire could come from any number of different backgrounds. The new Operations Manager could have a military or law-enforcement background. He or she could have a facilities background or a safety background. The right person will emerge from the group of folks who respond to Allan’s ad. He isn’t going to create artificial obstacles for himself by specifying the requirements the new hire must have!
 
--   There isn’t any stupid boring corporatespeak language. Allan talks directly to the person reading the ad, one person at a time, the same way we teach job-seekers to write directly to hiring managers in their [Pain Letters.](http://www.humanworkplace.com/whats-pain-letter/ "http://www.humanworkplace.com/whats-pain-letter/")
+-   There isn’t any stupid boring corporatespeak language. Allan talks directly to the person reading the ad, one person at a time, the same way we teach job-seekers to write directly to hiring managers in their [Pain Letters.](http://www.humanworkplace.com/whats-pain-letter/)
 
 -   Allan includes a Logical Gate in his job ad. He asks interested candidates to send him a 300-word reply, and he tells them what should be in the reply. The best candidates are going to be obvious immediately when Allan reads the replies. Most candidates, sadly, will ignore the Logical Gate requirement and send a standard resume (with or without cover letter) to Allan in their haste to respond to the ad. Those people will get polite No Thanks letters.
 
-Want to learn how to put a human voice in your job ads and follow the Recruiting with a Human Voice approach? [Contact us here to learn more!](http://www.humanworkplace.com/contact-human-workplace/ "http://www.humanworkplace.com/contact-human-workplace/")
+Want to learn how to put a human voice in your job ads and follow the Recruiting with a Human Voice approach? [Contact us here to learn more!](http://www.humanworkplace.com/contact-human-workplace/)
 
-##### Share this entry
+-   [<span>Share on Facebook</span>](http://www.facebook.com/sharer.php?u=http://www.humanworkplace.com/write-job-ad/&t=How%20to%20Write%20a%20Job%20Ad)
 
--   [Share on Facebook](http://www.facebook.com/sharer.php?u=http://www.humanworkplace.com/write-job-ad/&t=How%20to%20Write%20a%20Job%20Ad "http://www.facebook.com/sharer.php?u=http://www.humanworkplace.com/write-job-ad/&t=How%20to%20Write%20a%20Job%20Ad")
+-   [<span>Share on Twitter</span>](https://twitter.com/share?text=How%20to%20Write%20a%20Job%20Ad&url=http://www.humanworkplace.com/?p=6974)
 
--   [Share on Twitter](https://twitter.com/share?text=How%20to%20Write%20a%20Job%20Ad&url=http://www.humanworkplace.com/?p=6974 "https://twitter.com/share?text=How%20to%20Write%20a%20Job%20Ad&url=http://www.humanworkplace.com/?p=6974")
+-   [<span>Share on Google+</span>](https://plus.google.com/share?url=http://www.humanworkplace.com/write-job-ad/)
 
--   [Share on Google+](https://plus.google.com/share?url=http://www.humanworkplace.com/write-job-ad/ "https://plus.google.com/share?url=http://www.humanworkplace.com/write-job-ad/")
+-   [<span>Share on Pinterest</span>](http://pinterest.com/pin/create/button/?url=http%3A%2F%2Fwww.humanworkplace.com%2Fwrite-job-ad%2F&description=How%20to%20Write%20a%20Job%20Ad&media=http%3A%2F%2Fwww.humanworkplace.com%2Fwp-content%2Fuploads%2F2014%2F05%2FGrow-your-flame-with-us-Liz-Ryan-Live-images.jpg)
 
--   [Share on Pinterest](http://pinterest.com/pin/create/button/?url=http%3A%2F%2Fwww.humanworkplace.com%2Fwrite-job-ad%2F&description=How%20to%20Write%20a%20Job%20Ad&media=http%3A%2F%2Fwww.humanworkplace.com%2Fwp-content%2Fuploads%2F2014%2F05%2FGrow-your-flame-with-us-Liz-Ryan-Live-images.jpg "http://pinterest.com/pin/create/button/?url=http%3A%2F%2Fwww.humanworkplace.com%2Fwrite-job-ad%2F&description=How%20to%20Write%20a%20Job%20Ad&media=http%3A%2F%2Fwww.humanworkplace.com%2Fwp-content%2Fuploads%2F2014%2F05%2FGrow-your-flame-with-us-Liz-Ryan-Live-images.jpg")
+-   [<span>Share on Linkedin</span>](http://linkedin.com/shareArticle?mini=true&title=How%20to%20Write%20a%20Job%20Ad&url=http://www.humanworkplace.com/write-job-ad/)
 
--   [Share on Linkedin](http://linkedin.com/shareArticle?mini=true&title=How%20to%20Write%20a%20Job%20Ad&url=http://www.humanworkplace.com/write-job-ad/ "http://linkedin.com/shareArticle?mini=true&title=How%20to%20Write%20a%20Job%20Ad&url=http://www.humanworkplace.com/write-job-ad/")
+-   [<span>Share on Tumblr</span>](http://www.tumblr.com/share/link?url=http%3A%2F%2Fwww.humanworkplace.com%2Fwrite-job-ad%2F&name=How%20to%20Write%20a%20Job%20Ad&description=You%20can%20write%20a%20job%20ad%20that%20doesn%E2%80%99t%20sound%20like%20a%20robot%20or%20a%20zombie%20wrote%20it.%20You%20can%20put%20a%20human%20voice%20in%20your%20job%20ads%2C%20and%20you%E2%80%99ll%20get%20a%20much%20better%20response%20when%20you%20do%21%20Start%20by%20telling%20us%20about%20the%20organization.%20Don%E2%80%99t%20use%20boring%20business%20boilerplate%20language%20like%20%E2%80%9CWe%20are%20a%20leading%20%5B%E2%80%A6%5D)
 
--   [Share on Tumblr](http://www.tumblr.com/share/link?url=http%3A%2F%2Fwww.humanworkplace.com%2Fwrite-job-ad%2F&name=How%20to%20Write%20a%20Job%20Ad&description=You%20can%20write%20a%20job%20ad%20that%20doesn%E2%80%99t%20sound%20like%20a%20robot%20or%20a%20zombie%20wrote%20it.%20You%20can%20put%20a%20human%20voice%20in%20your%20job%20ads%2C%20and%20you%E2%80%99ll%20get%20a%20much%20better%20response%20when%20you%20do%21%20Start%20by%20telling%20us%20about%20the%20organization.%20Don%E2%80%99t%20use%20boring%20business%20boilerplate%20language%20like%20%E2%80%9CWe%20are%20a%20leading%20%5B%E2%80%A6%5D "http://www.tumblr.com/share/link?url=http%3A%2F%2Fwww.humanworkplace.com%2Fwrite-job-ad%2F&name=How%20to%20Write%20a%20Job%20Ad&description=You%20can%20write%20a%20job%20ad%20that%20doesn%E2%80%99t%20sound%20like%20a%20robot%20or%20a%20zombie%20wrote%20it.%20You%20can%20put%20a%20human%20voice%20in%20your%20job%20ads%2C%20and%20you%E2%80%99ll%20get%20a%20much%20better%20response%20when%20you%20do%21%20Start%20by%20telling%20us%20about%20the%20organization.%20Don%E2%80%99t%20use%20boring%20business%20boilerplate%20language%20like%20%E2%80%9CWe%20are%20a%20leading%20%5B%E2%80%A6%5D")
+-   [<span>Share on Vk</span>](http://vk.com/share.php?url=http://www.humanworkplace.com/write-job-ad/)
 
--   [Share on Vk](http://vk.com/share.php?url=http://www.humanworkplace.com/write-job-ad/ "http://vk.com/share.php?url=http://www.humanworkplace.com/write-job-ad/")
+-   [<span>Share on Reddit</span>](http://reddit.com/submit?url=http://www.humanworkplace.com/write-job-ad/&title=How%20to%20Write%20a%20Job%20Ad)
 
--   [Share on Reddit](http://reddit.com/submit?url=http://www.humanworkplace.com/write-job-ad/&title=How%20to%20Write%20a%20Job%20Ad "http://reddit.com/submit?url=http://www.humanworkplace.com/write-job-ad/&title=How%20to%20Write%20a%20Job%20Ad")
+-   [<span>Share by Mail</span>](mailto:?subject=How%20to%20Write%20a%20Job%20Ad&body=http://www.humanworkplace.com/write-job-ad/)
 
--   [Share by Mail](mailto:?subject=How%20to%20Write%20a%20Job%20Ad&body=http://www.humanworkplace.com/write-job-ad/ "mailto:?subject=How%20to%20Write%20a%20Job%20Ad&body=http://www.humanworkplace.com/write-job-ad/")
+<span>9</span> <span>replies</span>
 
-9 replies
+1.  ![image](http://0.gravatar.com/avatar/f4ff4c12ce23c5e0dce47bd74724a642?s=60&d=mm&r=g)
 
-1.  
+    Alex Hamilton <span>says:</span>
 
-    ![Alex Hamilton](http://0.gravatar.com/avatar/f4ff4c12ce23c5e0dce47bd74724a642?s=60&d=mm&r=g "Alex Hamilton")
-
-    Alex Hamilton says: [September 20, 2014 at 7:21 am](http://www.humanworkplace.com/write-job-ad/#comment-34514 "http://www.humanworkplace.com/write-job-ad/#comment-34514")
+    [September 20, 2014 at 7:21 am](http://www.humanworkplace.com/write-job-ad/#comment-34514)
 
     Excellent article! It’s a much better way to assess the capabilities of the candidate and get out of the ‘black hole.’
 
-    [Reply](/write-job-ad/?replytocom=34514#respond "/write-job-ad/?replytocom=34514#respond")
+    [Reply](/write-job-ad/?replytocom=34514#respond)
 
-2.  
+2.  ![image](http://2.gravatar.com/avatar/87bfe4e3768fea42943a56da35f24294?s=60&d=mm&r=g)
 
-    ![vinodh](http://2.gravatar.com/avatar/87bfe4e3768fea42943a56da35f24294?s=60&d=mm&r=g "vinodh")
+    [vinodh](http://www.programmervinodhsen.com) <span>says:</span>
 
-    [vinodh](http://www.programmervinodhsen.com "http://www.programmervinodhsen.com") says: [September 21, 2014 at 12:28 am](http://www.humanworkplace.com/write-job-ad/#comment-34583 "http://www.humanworkplace.com/write-job-ad/#comment-34583")
+    [September 21, 2014 at 12:28 am](http://www.humanworkplace.com/write-job-ad/#comment-34583)
 
     I learnt something new. but is it that simple?(writing job ad)
 
-    [Reply](/write-job-ad/?replytocom=34583#respond "/write-job-ad/?replytocom=34583#respond")
+    [Reply](/write-job-ad/?replytocom=34583#respond)
 
-3.  
+3.  ![image](http://0.gravatar.com/avatar/0f44ff28e4cdf2d274fe9fcdb4a4d62c?s=60&d=mm&r=g)
 
-    ![MicheleElys](http://0.gravatar.com/avatar/0f44ff28e4cdf2d274fe9fcdb4a4d62c?s=60&d=mm&r=g "MicheleElys")
+    [MicheleElys](http://about.me/micheleelys) <span>says:</span>
 
-    [MicheleElys](http://about.me/micheleelys "http://about.me/micheleelys") says: [September 22, 2014 at 5:14 pm](http://www.humanworkplace.com/write-job-ad/#comment-34783 "http://www.humanworkplace.com/write-job-ad/#comment-34783")
+    [September 22, 2014 at 5:14 pm](http://www.humanworkplace.com/write-job-ad/#comment-34783)
 
-    BRAVO! Great example. Next step, sending it out to all 11 hospital conglomerates, Oil & Gas firms, IT, etc. :~) I am sure they are onboard by now! Cheers MicheleElys
+    BRAVO! Great example. Next step, sending it out to all 11 hospital conglomerates, Oil & Gas firms, IT, etc. :~) I am sure they are onboard by now!
+    Cheers MicheleElys
 
-    [Reply](/write-job-ad/?replytocom=34783#respond "/write-job-ad/?replytocom=34783#respond")
+    [Reply](/write-job-ad/?replytocom=34783#respond)
 
-4.  
+4.  ![image](http://1.gravatar.com/avatar/72481c045430cda664264ea8ca6a555d?s=60&d=mm&r=g)
 
-    ![Lydia Mpanga Sebuyira](http://1.gravatar.com/avatar/72481c045430cda664264ea8ca6a555d?s=60&d=mm&r=g "Lydia Mpanga Sebuyira")
+    [Lydia Mpanga Sebuyira](http://www.imprintltd.com) <span>says:</span>
 
-    [Lydia Mpanga Sebuyira](http://www.imprintltd.com "http://www.imprintltd.com") says: [August 26, 2015 at 2:41 am](http://www.humanworkplace.com/write-job-ad/#comment-167115 "http://www.humanworkplace.com/write-job-ad/#comment-167115")
+    [August 26, 2015 at 2:41 am](http://www.humanworkplace.com/write-job-ad/#comment-167115)
 
     Thank you for this excellent article! Now I am going to try it out as I recruit a team of executive coaches…
 
-    [Reply](/write-job-ad/?replytocom=167115#respond "/write-job-ad/?replytocom=167115#respond")
+    [Reply](/write-job-ad/?replytocom=167115#respond)
 
-5.  
+5.  ![image](http://1.gravatar.com/avatar/a7e98ab18da1c9f3cac3d8d9198b0844?s=60&d=mm&r=g)
 
-    ![Tony C.](http://1.gravatar.com/avatar/a7e98ab18da1c9f3cac3d8d9198b0844?s=60&d=mm&r=g "Tony C.")
+    Tony C. <span>says:</span>
 
-    Tony C. says: [August 26, 2015 at 7:02 am](http://www.humanworkplace.com/write-job-ad/#comment-167171 "http://www.humanworkplace.com/write-job-ad/#comment-167171")
+    [August 26, 2015 at 7:02 am](http://www.humanworkplace.com/write-job-ad/#comment-167171)
 
     Very good article. People want to be treated like people.
 
-    [Reply](/write-job-ad/?replytocom=167171#respond "/write-job-ad/?replytocom=167171#respond")
+    [Reply](/write-job-ad/?replytocom=167171#respond)
 
-6.  
+6.  ![image](http://1.gravatar.com/avatar/1b3bd4ff69b9c7a235d367cb19997d42?s=60&d=mm&r=g)
 
-    ![Gordon Conolly](http://1.gravatar.com/avatar/1b3bd4ff69b9c7a235d367cb19997d42?s=60&d=mm&r=g "Gordon Conolly")
+    Gordon Conolly <span>says:</span>
 
-    Gordon Conolly says: [August 26, 2015 at 12:33 pm](http://www.humanworkplace.com/write-job-ad/#comment-167215 "http://www.humanworkplace.com/write-job-ad/#comment-167215")
+    [August 26, 2015 at 12:33 pm](http://www.humanworkplace.com/write-job-ad/#comment-167215)
 
     Wonderful advice – thank you. .I couldn’t agree more – Recruiters and HR take note.. so refreshing. BUT requires much discipline.
 
-    [Reply](/write-job-ad/?replytocom=167215#respond "/write-job-ad/?replytocom=167215#respond")
+    [Reply](/write-job-ad/?replytocom=167215#respond)
 
-7.  
+7.  ![image](http://2.gravatar.com/avatar/b57e1aea796a441eb52386349e5a00e3?s=60&d=mm&r=g)
 
-    ![James Childers](http://2.gravatar.com/avatar/b57e1aea796a441eb52386349e5a00e3?s=60&d=mm&r=g "James Childers")
+    James Childers <span>says:</span>
 
-    James Childers says: [August 26, 2015 at 3:19 pm](http://www.humanworkplace.com/write-job-ad/#comment-167255 "http://www.humanworkplace.com/write-job-ad/#comment-167255")
+    [August 26, 2015 at 3:19 pm](http://www.humanworkplace.com/write-job-ad/#comment-167255)
 
     Where do I apply? This is great and I have been searching for a new job for approx. a year and have not seen a single ad such as this. I want to work for them!
 
-    [Reply](/write-job-ad/?replytocom=167255#respond "/write-job-ad/?replytocom=167255#respond")
+    [Reply](/write-job-ad/?replytocom=167255#respond)
 
-8.  
+8.  ![image](http://0.gravatar.com/avatar/07e4719697c385d7f5cce2ef5939a9b8?s=60&d=mm&r=g)
 
-    ![Zach](http://0.gravatar.com/avatar/07e4719697c385d7f5cce2ef5939a9b8?s=60&d=mm&r=g "Zach")
+    [Zach](http://consumersenergy.com) <span>says:</span>
 
-    [Zach](http://consumersenergy.com "http://consumersenergy.com") says: [August 27, 2015 at 9:57 am](http://www.humanworkplace.com/write-job-ad/#comment-167482 "http://www.humanworkplace.com/write-job-ad/#comment-167482")
+    [August 27, 2015 at 9:57 am](http://www.humanworkplace.com/write-job-ad/#comment-167482)
 
     Question: I like the ad, however we are an OFCCP federal contractor and have specifications given to us on what language (essential functions) to include in our job postings. How can we include your ad style and still be compliant?
 
-    [Reply](/write-job-ad/?replytocom=167482#respond "/write-job-ad/?replytocom=167482#respond")
+    [Reply](/write-job-ad/?replytocom=167482#respond)
 
-    -   
+    -   ![image](http://0.gravatar.com/avatar/6c1e204e6c3ddbaea9d543d3e4e2bfec?s=60&d=mm&r=g)
 
-        ![Liz Ryan](http://0.gravatar.com/avatar/6c1e204e6c3ddbaea9d543d3e4e2bfec?s=60&d=mm&r=g "Liz Ryan")
+        Liz Ryan <span>says:</span>
 
-        Liz Ryan says: [August 27, 2015 at 11:08 am](http://www.humanworkplace.com/write-job-ad/#comment-167500 "http://www.humanworkplace.com/write-job-ad/#comment-167500")
+        [August 27, 2015 at 11:08 am](http://www.humanworkplace.com/write-job-ad/#comment-167500)
 
         Hi Zach,
 
-        Thanks for your question! [Here’s the page on our site](http://www.humanworkplace.com/faq-get-human-workplace-advice-on-your-career-situation/ "http://www.humanworkplace.com/faq-get-human-workplace-advice-on-your-career-situation/") where you can explore the various ways to get our advice on your HR and recruiting issues. Thanks! Michael [(you can reach me here)](http://www.humanworkplace.com/contact-human-workplace/ "http://www.humanworkplace.com/contact-human-workplace/")
+        Thanks for your question! [Here’s the page on our site](http://www.humanworkplace.com/faq-get-human-workplace-advice-on-your-career-situation/) where you can explore the various ways to get our advice on your HR and recruiting issues. Thanks!
+        Michael [(you can reach me here)](http://www.humanworkplace.com/contact-human-workplace/)
 
-        [Reply](/write-job-ad/?replytocom=167500#respond "/write-job-ad/?replytocom=167500#respond")
+        [Reply](/write-job-ad/?replytocom=167500#respond)
 
-### Leave a Reply
+<span>Want to join the discussion?
+Feel free to contribute!</span>
 
-Want to join the discussion? Feel free to contribute! === Leave a Reply [Cancel reply](/write-job-ad/#respond "/write-job-ad/#respond") <span id="reply-title" class="anchor"></span>
+### 
 
-Your email address will not be published. Required fields are marked \*
+Required fields are marked <span>\*</span>
 
-Name \*
+Name <span>\*</span>
 
-Email \*
+Email <span>\*</span>
 
 Website
 
-Comment You may use these HTML tags and attributes: `<a href="" title=""> <abbr title=""> <acronym title=""> <b> <blockquote cite=""> <cite> <code> <del datetime=""> <em> <i> <q cite=""> <s> <strike> <strong> `
+Comment
 
-### Subscribe for blog updates via email!
+You may use these HTML tags and attributes: `<a href= title=> <abbr title=> <acronym title=> <b> <blockquote cite=> <cite> <code> <del datetime=> <em> <i> <q cite=> <s> <strike> <strong> `
 
 Email Address
 
-### Popular Links
+-   [Start Here](http://www.humanworkplace.com/start/)
 
--   
+-   [What’s New?](http://www.humanworkplace.com/whats-new/)
 
-[Start Here](http://www.humanworkplace.com/start/ "http://www.humanworkplace.com/start/") -
+-   [Watch, Read and Listen](http://www.humanworkplace.com/watch-read-listen/)
 
-[What’s New?](http://www.humanworkplace.com/whats-new/ "http://www.humanworkplace.com/whats-new/") -
+-   [Partner with Us](http://www.humanworkplace.com/partner-us/)
 
-[Watch, Read and Listen](http://www.humanworkplace.com/watch-read-listen/ "http://www.humanworkplace.com/watch-read-listen/") -
+-   [Career Guidance](http://www.humanworkplace.com/career-guidance/)
 
-[Partner with Us](http://www.humanworkplace.com/partner-us/ "http://www.humanworkplace.com/partner-us/") -
+-   [Fan Mail](http://www.humanworkplace.com/fan-mail/)
 
-[Career Guidance](http://www.humanworkplace.com/career-guidance/ "http://www.humanworkplace.com/career-guidance/") -
+<!-- -->
 
-[Fan Mail](http://www.humanworkplace.com/fan-mail/ "http://www.humanworkplace.com/fan-mail/")
+-   [Membership Comparison](http://www.humanworkplace.com/membership-comparison-2/)
 
-### Products Spotlight
+-   [Virtual Coaching Groups](http://www.humanworkplace.com/virtual-coaching-groups/)
 
--   
-
-[Membership Comparison](http://www.humanworkplace.com/membership-comparison-2/ "http://www.humanworkplace.com/membership-comparison-2/") -
-
-[Virtual Coaching Groups](http://www.humanworkplace.com/virtual-coaching-groups/ "http://www.humanworkplace.com/virtual-coaching-groups/") -
-
-[Burning Issue Email Q & A Coaching Program](http://www.humanworkplace.com/products/burning-issue/ "http://www.humanworkplace.com/products/burning-issue/")
-
-### Upcoming Events
+-   [Burning Issue Email Q & A Coaching Program](http://www.humanworkplace.com/products/burning-issue/)
 
 There are no upcoming events.
 
-[View Calendar //](http://www.humanworkplace.com/calendar-2/ "http://www.humanworkplace.com/calendar-2/")
+[View Calendar **](http://www.humanworkplace.com/calendar-2/)
 
-### The Human Workplace Whole Person Job Search
+[![image](http://www.humanworkplace.com/wp-content/uploads/2015/03/take-a-big-step-up-in-2015_1-300x238-300x238.jpg)](http://www.humanworkplace.com/products/downloadable-catalog-whole-person-job-search-reinvention-catalog/)
 
-[\<\<http://www.humanworkplace.com/wp-content/uploads/2015/03/take-a-big-step-up-in-2015\_1-300x238-300x238.jpg take-a-big-step-up-in-2015\_1-300x238](http://www.humanworkplace.com/products/downloadable-catalog-whole-person-job-search-reinvention-catalog/ "http://www.humanworkplace.com/products/downloadable-catalog-whole-person-job-search-reinvention-catalog/")\>\> [\<\<http://www.humanworkplace.com/wp-content/uploads/2013/05/btn491486131.png Catalogue Download Button](http://www.humanworkplace.com/products/downloadable-catalog-whole-person-job-search-reinvention-catalog/ "http://www.humanworkplace.com/products/downloadable-catalog-whole-person-job-search-reinvention-catalog/")\>\>
+[![image](http://www.humanworkplace.com/wp-content/uploads/2013/05/btn491486131.png)](http://www.humanworkplace.com/products/downloadable-catalog-whole-person-job-search-reinvention-catalog/)
 
-### Follow us on Twitter
+[Tweets by @humanworkplace](https://twitter.com/humanworkplace)
 
-[Tweets by @humanworkplace](https://twitter.com/humanworkplace "https://twitter.com/humanworkplace")
+<span>© 2015 Human Workplace - [Terms and Conditions](/terms-conditions/) - [Enfold Child WordPress Theme by Kriesi](http://www.kriesi.at)</span>
 
-### Let’s Get Social
+[ <span> <span> <span>If Your Resume Sounds Robotic, Here’s Help!</span> <span>![image](http://www.humanworkplace.com/wp-content/uploads/2013/05/bring-yourself-to-work-2-150x150.jpg)</span> </span> </span>](http://www.humanworkplace.com/resume-sounds-robotic-heres-help/)[ <span> <span> <span>![image](http://www.humanworkplace.com/wp-content/uploads/2014/03/How-to-grow-your-flame-badge-Liz-Ryan-Live-images-80x80.jpg)</span> <span>Your Current Job Is Your Best Platform For Your Next Job</span> </span> </span>](http://www.humanworkplace.com/current-job-best-platform-next/)
 
-© 2015 Human Workplace - [Terms and Conditions](/terms-conditions/ "/terms-conditions/") - [Enfold Child WordPress Theme by Kriesi](http://www.kriesi.at "http://www.kriesi.at")
-
-[If Your Resume Sounds Robotic, Here’s Help! \<\<http://www.humanworkplace.com/wp-content/uploads/2013/05/bring-yourself-to-work-2-150x150.jpg Finding and Landing Your Dream Job](http://www.humanworkplace.com/resume-sounds-robotic-heres-help/ "http://www.humanworkplace.com/resume-sounds-robotic-heres-help/")\> \>[\<\<http://www.humanworkplace.com/wp-content/uploads/2014/03/How-to-grow-your-flame-badge-Liz-Ryan-Live-images-80x80.jpg Career MOJO Club: One Year Membership Special Offer!](http://www.humanworkplace.com/current-job-best-platform-next/ "http://www.humanworkplace.com/current-job-best-platform-next/")\> Your Current Job Is Your Best Platform For Your Next Job \>
-
-Powered by WishList Member - [Membership Software](http://member.wishlistproducts.com/ "http://member.wishlistproducts.com/")
-
-[Scroll to top](#top "#top")
+Powered by WishList Member - [Membership Software](http://member.wishlistproducts.com/)
